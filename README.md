@@ -1,1 +1,1 @@
-Everyone.
+Everyone can changed his company.
